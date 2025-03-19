@@ -8,7 +8,10 @@
 
     https://github.com/user-attachments/assets/65154518-a0fc-4d8d-8421-c05f54ab33e9
 
-### Bệnh nhân nam 74 tuổi, đau ngực 4h
+### Bệnh nhân nữ 74 tuổi, đau ngực 4h
   - ![image](https://github.com/user-attachments/assets/04c24121-3c51-4c3d-ae8c-e6bcde672134)
 
+    https://github.com/user-attachments/assets/f4f8beeb-8ab8-4f58-941c-38990f0eb57d
+
+    https://github.com/user-attachments/assets/3e285deb-72e2-47a1-a43b-ee963ea43ebf
 
