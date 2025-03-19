@@ -1,5 +1,3 @@
-
-https://github.com/user-attachments/assets/bfea8e9f-eb55-4254-86ed-79a16cc78944
 # Một số ECG trên lâm sàng
 ## Tắc LAD:
 ### Lê Thị Suốt 72 tuổi. Đau ngực giờ thứ 52. Troponin-T dương tính.
