@@ -18,6 +18,7 @@
 
 
 ## Tắc LAD & LCx:
+### Bệnh nhân nam 55t đau ngực trái giờ thứ2, HA 80/60
   - ![image](https://github.com/user-attachments/assets/63b6295b-6016-44e9-a9fe-447ddeddfd6f)
 
     https://github.com/user-attachments/assets/01bb002e-5994-4a0b-9b9e-0055fa066dc8
