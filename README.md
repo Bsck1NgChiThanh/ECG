@@ -15,3 +15,10 @@
 
     https://github.com/user-attachments/assets/3e285deb-72e2-47a1-a43b-ee963ea43ebf
 
+
+
+## Tắc LAD & LCx:
+  - ![image](https://github.com/user-attachments/assets/63b6295b-6016-44e9-a9fe-447ddeddfd6f)
+
+    https://github.com/user-attachments/assets/01bb002e-5994-4a0b-9b9e-0055fa066dc8
+
